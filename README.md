@@ -2,9 +2,9 @@
 
 I don't care about doubles I guess..just iwc sometimes
 
-░ ⌗ 𝘙𝘌𝘈𝘋 MY LINKS 𝘍𝘖𝘙 𝘔𝘖𝘙𝘌 𝘚𝘛𝘜𝘍𝘍!! and sign my ata or straw
+░ ⌗ 𝘙𝘌𝘈𝘋 MY RENTRY BEFORE YOU INTERACT. !! 
 - 
-↷✦; 𝘎𝘢𝘣𝘦 / Nick or kin names!! '
+↷✦; 𝘎𝘢𝘣𝘦 or kin names!! '
 
 ⌗ Any pronouns idc
 
