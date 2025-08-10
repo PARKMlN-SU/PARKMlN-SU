@@ -6,13 +6,11 @@ I don't care about doubles I guess..just iwec sometimes
 - 
 ↷✦; 𝘎𝘢𝘣𝘦 or kin names!! '
 
-⌗ Any pronouns idc
+⌗ He/she
 
-▒  𝘽𝙞𝙨𝙚𝙭𝙪𝙖𝙡 ᥬ Genderfluid 
+▒  𝘽𝙞𝙨𝙚𝙭𝙪𝙖𝙡 ᥬ Genderfluid + Ambiamorous + Quoiromantic !!!!!!
 
 ⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N, OTHERKIN
-
-Yumeshipper, mirrorshipper & multishipper :p
 
 ༄ C+H & Int is appreciated please!!! feel free to bmf aswell,read my rentry first tho...  I also accept all friend requests too , so dont be afraid!!! 
 
