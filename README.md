@@ -8,7 +8,7 @@ I don't care about doubles I guess..just iwec sometimes
 
 ⌗ He/she
 
-▒  Pansexual ᥬ Genderfluid + Ambiamorous + Quoiromantic !!!!!!
+▒  Pansexual ᥬ Genderfluid  + Quoiromantic !!!!!!
 
 ⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N, OTHERKIN
 
