@@ -1,7 +1,5 @@
 ![gif description](https://files.catbox.moe/rnk9mu.gif) 
 
-I don't care about doubles I guess..just iwec sometimes
-
 ░ ⌗ 𝘙𝘌𝘈𝘋 MY RENTRY BEFORE YOU INTERACT. !! 
 - 
 ↷✦; 𝘎𝘢𝘣𝘦 or kin names!! '
