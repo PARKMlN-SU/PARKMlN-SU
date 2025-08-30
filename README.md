@@ -12,4 +12,4 @@
 
 ༄ C+H & Int is appreciated please!!! feel free to bmf aswell,read my rentry first tho...  I also accept all friend requests too , so dont be afraid!!! 
 
-![gifdescription](https://files.catbox.moe/ydbzpt.gif)
+![gifdescription](https://files.catbox.moe/p389jp.jpg)
