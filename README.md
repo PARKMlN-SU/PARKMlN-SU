@@ -4,7 +4,7 @@
 - 
 ↷✦; 𝘎𝘢𝘣𝘦 or kin names!! '
 
-⌗ He/she
+⌗ He/she/it
 
 ▒  Pansexual ᥬ Genderfluid  + Grayromantic !!!!!!
 
