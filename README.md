@@ -6,7 +6,7 @@
 
 ⌗ He/she
 
-▒  Pansexual ᥬ Genderfluid  + Quoiromantic !!!!!!
+▒  Pansexual ᥬ Genderfluid  + Grayromantic !!!!!!
 
 ⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N, OTHERKIN
 
