@@ -10,7 +10,7 @@
 
 ⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N + OTHERKIN []
 Heavy park minsu, oh beomseok,  park humin & yoo jinwoo Id/selfhood.
-doubles dbi/iwec 
+doubles dni/iwec 
 
 ༄ C+H & Int is appreciated please!!! feel free to bmf aswell,read my rentry first tho...  I also accept all friend requests too , so dont be afraid!!! 
 
