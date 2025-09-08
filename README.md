@@ -8,7 +8,7 @@
 
 ▒  Pansexual ᥬ Genderfluid  + Grayromantic !!!!!!
 
-⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N + OTHERKIN
+⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N + OTHERKIN []
 Heavy park minsu, oh beomseok,  park humin & yoo jinwoo Id/selfhood
 doubles dbi/iwec 
 
