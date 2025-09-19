@@ -4,9 +4,9 @@
 - 
 ↷✦; 𝘎𝘢𝘣𝘦 or kin names!! '
 
-⌗ He/she/it
+⌗ idc what pronouns + it/its
 
-▒  Pansexual ᥬ Genderfluid  + Grayromantic !!!!!!
+▒  Pansexual ᥬ unlabeled gender  + Grayromantic !!!!!!
 
 ⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N + OTHERKIN []
 Heavy park minsu, oh beomseok,  park humin & yoo jinwoo Id/selfhood.
